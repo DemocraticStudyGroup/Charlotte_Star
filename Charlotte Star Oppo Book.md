@@ -157,22 +157,13 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 
 # Legal Records
 
-## Legal Records Highlights
-
-* Odio facilisis mauris sit amet massa vitae. Viverra suspendisse potenti nullam ac. At consectetur lorem donec massa sapien faucibus et. Egestas fringilla phasellus faucibus scelerisque eleifend donec pretium vulputate.
-* Vel facilisis volutpat est velit egestas dui id ornare arcu. Dictum fusce ut placerat orci nulla pellentesque dignissim. Nibh tortor id aliquet lectus proin nibh nisl condimentum id. Porta nibh venenatis cras sed felis. Dolor sit amet consectetur adipiscing elit ut aliquam purus.
-
 ## Professional Legal History
 
-**Diam sollicitudin tempor id eu nisl nunc mi ipsum.** Vel facilisis volutpat est velit egestas dui id ornare arcu. Dictum fusce ut placerat orci nulla pellentesque dignissim. Nibh tortor id aliquet lectus proin nibh nisl condimentum id. Porta nibh venenatis cras sed felis. Dolor sit amet consectetur adipiscing elit ut aliquam purus. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
-
-**Diam sollicitudin tempor id eu nisl nunc mi ipsum.** Vel facilisis volutpat est velit egestas dui id ornare arcu. Dictum fusce ut placerat orci nulla pellentesque dignissim. Nibh tortor id aliquet lectus proin nibh nisl condimentum id. Porta nibh venenatis cras sed felis. Dolor sit amet consectetur adipiscing elit ut aliquam purus. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+There is no record of Charlotte_Star as an attorney.
 
 ## Civil Lawsuits
 
-**In hac habitasse platea dictumst.** Odio facilisis mauris sit amet massa vitae. Viverra suspendisse potenti nullam ac. At consectetur lorem donec massa sapien faucibus et. Egestas fringilla phasellus faucibus scelerisque eleifend donec pretium vulputate. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
-
-**In hac habitasse platea dictumst.** Odio facilisis mauris sit amet massa vitae. Viverra suspendisse potenti nullam ac. At consectetur lorem donec massa sapien faucibus et. Egestas fringilla phasellus faucibus scelerisque eleifend donec pretium vulputate. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+A search of [/r/modelSupCourt](https://www.reddit.com/r/modelSupCourt/), [/r/SupCourtWesternState](https://old.reddit.com/r/SupCourtWesternState/), /r/[CentralStateSupCourt](https://www.reddit.com/r/CentralStateSupCourt/), [/r/ModelNortheastCourts](https://old.reddit.com/r/ModelNortheastCourts/), [/r/SSSC]((https://old.reddit.com/r/SSSC/), and [/r/ESSC](https://old.reddit.com/r/ESSC/) for Charlotte_Star did not produce results.
 
 +++
 
