@@ -165,7 +165,7 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 * Name: Charlotte_Star
 * Party: Republican
 * States: Atlantic
-* Political Experience:
-* Professional Experience:
+* Political Experience: Charlotte_Star was first elected to AC Assembly in July of 2019 as part of the Republican list. She was re-elected to the assembly again in October 2019, before succeeding [/u/Speaker_Lynx](https://www.reddit.com/user/Speaker_Lynx/) as the congressperson for the Atlantic Commonwealth's Third District in the last week of the 120th Congress. She was defeated in the November 2019 federal elections by a five-point margin by Sierra Attorney General [/u/OptimizedUmbrella](https://www.reddit.com/user/optimizedumbrella), and now serves in Congress as a member of the GOP list.
+* Professional Experience: None reported.
 
 ##### Reported by the Democratic Study Group.
