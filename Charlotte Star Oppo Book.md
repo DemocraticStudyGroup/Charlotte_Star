@@ -163,7 +163,7 @@ There is no record of Charlotte_Star as an attorney.
 
 ## Civil Lawsuits
 
-A search of [/r/modelSupCourt](https://www.reddit.com/r/modelSupCourt/), [/r/SupCourtWesternState](https://old.reddit.com/r/SupCourtWesternState/), /r/[CentralStateSupCourt](https://www.reddit.com/r/CentralStateSupCourt/), [/r/ModelNortheastCourts](https://old.reddit.com/r/ModelNortheastCourts/), [/r/SSSC]((https://old.reddit.com/r/SSSC/), and [/r/ESSC](https://old.reddit.com/r/ESSC/) for Charlotte_Star did not produce results.
+A search of [/r/modelSupCourt](https://www.reddit.com/r/modelSupCourt/), [/r/SupCourtWesternState](https://old.reddit.com/r/SupCourtWesternState/), /r/[CentralStateSupCourt](https://www.reddit.com/r/CentralStateSupCourt/), [/r/ModelNortheastCourts](https://old.reddit.com/r/ModelNortheastCourts/), [/r/SSSC](https://old.reddit.com/r/SSSC/), and [/r/ESSC](https://old.reddit.com/r/ESSC/) for Charlotte_Star did not produce results.
 
 +++
 
