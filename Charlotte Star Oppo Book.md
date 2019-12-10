@@ -60,26 +60,28 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 
 +++
 
-# Topic 1
+# Unqualified and Dangerous
 
 ## Topic 1 Highlights
 
 * Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit.
 * Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a.
 
-## Subtopic
+## Disdain for American Institutions
 
-**Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio. Ac auctor augue mauris augue neque. Leo urna molestie at elementum eu facilisis sed odio. Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a. Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+**Star more concerned with values than representing her constituents.** In a November 2019 debate, Star claimed that it was more important to stand up for "American values and morals" than "to be mindful to the wishes of their constituents." Star said,
 
-**Lorem ipsum: Dolor sit amet, "consectetur adipiscing elit."** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio,
+> Your constituents care the most about you doing right by your position, I don't think I should just be their way into Washington, I think I should be standing up for the moral compass of my district, rather than splitting hairs over specific issues that affect my district.
 
-> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Tellus mauris a diam maecenas sed enim ut. Amet venenatis urna cursus eget nunc scelerisque viverra mauris. Orci porta non pulvinar neque laoreet suspendisse interdum.
+\[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
-\[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+**Star: CIA could become "its own KGB."** In a November 2019 debate, Star said "the checks placed upon [the CIA] by Congress, and by the press are what keep it from becoming its own KGB." Warning of the potential for "an intelligence agency overstepping its bounds and trampling on our democratic freedoms and liberties," Star called for a more active intelligence committee, saying it was "a matter of time before this negligence brings us horrible results." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
+
+**Star called aid to Mexico "an affront to American values."** In a November 2019 debate, Star lambasted Atlantic Governor Paradoa for sending aid to Mexico, accusing her of "constitutional vandalism" and saying "her actions to undermine the constitution of the United States are an affront to American values." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
 +++
 
-# Topic 2
+# Charter Schools
 
 ## Topic 2 Highlights
 
@@ -88,7 +90,11 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 
 ## Subtopic
 
-**Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio. Ac auctor augue mauris augue neque. Leo urna molestie at elementum eu facilisis sed odio. Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a. Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+**Star criticized Governor for ban on charter schools.** In a November 2019 debate, Star qualified her praise of Atlantic, Governor Paradoa, saying,
+
+> Governor Paradoa's tenure in the governor's mansion have been good for the state... aside from not working to overturn the state's constitutional ban on Charter Schools...
+
+\[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
 **Lorem ipsum: Dolor sit amet, "consectetur adipiscing elit."** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio,
 
