@@ -69,57 +69,73 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor i
 
 ## Disdain for American Institutions
 
-**Star more concerned with values than representing her constituents.** In a November 2019 debate, Star claimed that it was more important to stand up for "American values and morals" than "to be mindful to the wishes of their constituents." Star said,
+**Star more concerned with values than representing her constituents.** In a November 2019 House debate, Star claimed that it was more important to stand up for "American values and morals" than "to be mindful to the wishes of their constituents." Star said,
 
 > Your constituents care the most about you doing right by your position, I don't think I should just be their way into Washington, I think I should be standing up for the moral compass of my district, rather than splitting hairs over specific issues that affect my district.
 
 \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
-**Star: CIA could become "its own KGB."** In a November 2019 debate, Star said "the checks placed upon [the CIA] by Congress, and by the press are what keep it from becoming its own KGB." Warning of the potential for "an intelligence agency overstepping its bounds and trampling on our democratic freedoms and liberties," Star called for a more active intelligence committee, saying it was "a matter of time before this negligence brings us horrible results." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
+**Star: CIA could become "its own KGB."** In a November 2019 House debate, Star said "the checks placed upon [the CIA] by Congress, and by the press are what keep it from becoming its own KGB." Warning of the potential for "an intelligence agency overstepping its bounds and trampling on our democratic freedoms and liberties," Star called for a more active intelligence committee, saying it was "a matter of time before this negligence brings us horrible results." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
-**Star called aid to Mexico "an affront to American values."** In a November 2019 debate, Star lambasted Atlantic Governor Paradoa for sending aid to Mexico, accusing her of "constitutional vandalism" and saying "her actions to undermine the constitution of the United States are an affront to American values." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
+**Star called aid to Mexico "an affront to American values."** In a November 2019 House debate, Star lambasted Atlantic Governor Paradoa for sending aid to Mexico, accusing her of "constitutional vandalism" and saying "her actions to undermine the constitution of the United States are an affront to American values." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
+
+**Star attempted to modify a federal statute through state legislation.** Star's Internet Freedom and Competition Act 2019, an assembly bill in Atlantic, attempted to modify the federal Communications Act of 1934. When asked about this by HazardArrow in a July 2019 Assembly debate, Star said that she "understands that the assembly is unable to modify federal legislation, now." \[Internet Freedom and Competition Act 2019, [6/24/2019](https://docs.google.com/document/d/1bgHhwfI3mLKq7T9KGf9HZ1KFPihi_vLC1dEIvaiJ4_o/edit); Atlantic Assembly Debate, [7/15/2019](https://www.reddit.com/r/ModelUSElections/comments/cckyx7/atlantic_assembly_debate/etslzfa/)\]
+
+## A Republican in Moderate's Clothing
+
+**Star claimed the moderate brand, but with a track record of right-wing rhetoric.** In a November 2019 House debate, Star denounced "partisan interests" and called herself "a moderate." But in a July Assembly 2019 debate, she attacked "big state tax and spend liberals," called for heavily arming police, and said that "socialism is one of the most destructive ideas we've had in human history." \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/); Atlantic Assembly Debate, [7/15/2019](https://www.reddit.com/r/ModelUSElections/comments/cckyx7/atlantic_assembly_debate/etslzfa/); Atlantic Assembly Debate, [7/15/2019](https://www.reddit.com/r/ModelUSElections/comments/cckyx7/atlantic_assembly_debate/etslk7g/)\]
+
+**Star accused her opponents of wanting to kill poice.** In a July 2019 Assembly debate, Star criticized Atlantic Governor Paradoa for disarming police, calling it "social engineering." Star then went a step further, and claimed that "for far left radicals the police are the enemy and killing them is chillingly intended." \[Atlantic Assembly Debate, [7/15/2019](https://www.reddit.com/r/ModelUSElections/comments/cckyx7/atlantic_assembly_debate/etslk7g/)\]
 
 +++
 
-# Charter Schools
+# Education
 
 ## Topic 2 Highlights
 
 * Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit.
 * Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a.
 
-## Subtopic
+## Charter Schools
 
-**Star criticized Governor for ban on charter schools.** In a November 2019 debate, Star qualified her praise of Atlantic, Governor Paradoa, saying,
+**Star criticized Governor for ban on charter schools.** In a November 2019 House debate, Star qualified her praise of Atlantic, Governor Paradoa, saying,
 
 > Governor Paradoa's tenure in the governor's mansion have been good for the state... aside from not working to overturn the state's constitutional ban on Charter Schools...
 
 \[Atlantic House Debate, [11/23/2019](https://www.reddit.com/r/ModelUSElections/comments/dzvzzq/atlantic_house_debate/f8ft4y1/)\]
 
-**Lorem ipsum: Dolor sit amet, "consectetur adipiscing elit."** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio,
+**Star supported private charters because "they mean that the state has to educate less children."** In a hearing for Atlantic Secretary of Labor, Education, Health, and Human Services nominee Tucklet, Star criticized his opposition to charter schools after the nominee quoted an educator's criticism of charter schools. Star said that "private educational systems benefit everyone since they mean that the state has to educate less children." \[Secretary of Labor Hearing, [10/29/2019](https://www.reddit.com/r/ModelNortheastState/comments/doj2io/secretary_of_labor_hearing/f5qqlqd/)\]
 
-> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Tellus mauris a diam maecenas sed enim ut. Amet venenatis urna cursus eget nunc scelerisque viverra mauris. Orci porta non pulvinar neque laoreet suspendisse interdum.
+## Opposing Public Education
 
-\[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+**Star: Public education is a "handout to the wealthy."** In a hearing for Atlantic Secretary of Labor, Education, Health, and Human Services nominee Tucklet, Star called public schools "handouts to the wealthy," since private schools "mean that the state has to educate less children." \[Secretary of Labor Hearing, [10/29/2019](https://www.reddit.com/r/ModelNortheastState/comments/doj2io/secretary_of_labor_hearing/f5qqlqd/)\]
+
+**Slippery slope: Star claimed public schools would lead to breadlines.** In a July 2019 Assembly debate, Star called Atlantic's constitution prohibition on charter schools "abhorrent," and then said "socialists" support public education because of "deep seeded ideology." Star predicted of the consequences of public schools,
+
+> Before long we'll all be at breadlines because using the free market to pay for food is unethical somehow, and all religious speech will be banned. It is a ludicrous overreach of state powers to ban charter schools.
+
+[Atlantic Assembly Debate, [7/14/2019](https://www.reddit.com/r/ModelUSElections/comments/cckyx7/atlantic_assembly_debate/ets9kod/)\]
 
 +++
 
-# Topic 3
+# Civil Rights
 
 ## Topic 3 Highlights
 
 * Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit.
 * Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a.
 
-## Subtopic
+## Abortion
 
-**Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua.** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio. Ac auctor augue mauris augue neque. Leo urna molestie at elementum eu facilisis sed odio. Lobortis feugiat vivamus at augue eget. Vel fringilla est ullamcorper eget nulla facilisi. Commodo nulla facilisi nullam vehicula ipsum a. Rutrum quisque non tellus orci ac. Commodo elit at imperdiet dui accumsan sit amet nulla. Ultrices neque ornare aenean euismod. Ornare massa eget egestas purus. Congue quisque egestas diam in arcu cursus euismod quis. Ac tortor vitae purus faucibus. Pharetra massa massa ultricies mi quis hendrerit. \[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+**Star: "Late term abortions are inhumane."** In a June 2019 debate on the Prohibition of Late Term Abortions Act, despite acknowledging that most late term abortions are "due to foetal abnormalities and protections of the health of the mother," Star claimed "there is no real justification for those sorts of abortions... late term abortions are inhumane." \[H.R.346 Debate, [6/26/2019](https://www.reddit.com/r/ModelUSGov/comments/c4i6l9/hr346_prohibition_of_late_term_abortions_act/es1xp5y/)\]
 
-**Lorem ipsum: Dolor sit amet, "consectetur adipiscing elit."** Auctor augue mauris augue neque gravida in. Morbi tempus iaculis urna id. Vitae congue eu consequat ac felis donec et odio,
+**Contraception, sex education "pains" Star.** In a June 2019 debate on the Prohibition of Late Term Abortions Act, Star admitted that policy to reduce abortions "has to be through, as much as it pains me to say, better contraception and better sex education." She qualified her claim, though, saying "we need common sense limits on" sex education. \[H.R.346 Debate, [6/26/2019](https://www.reddit.com/r/ModelUSGov/comments/c4i6l9/hr346_prohibition_of_late_term_abortions_act/es1xp5y/)\]
 
-> Lorem ipsum dolor sit amet, consectetur adipiscing elit, sed do eiusmod tempor incididunt ut labore et dolore magna aliqua. Tellus mauris a diam maecenas sed enim ut. Amet venenatis urna cursus eget nunc scelerisque viverra mauris. Orci porta non pulvinar neque laoreet suspendisse interdum.
+**Star called abortion "baby murder," didn't support anti-abortion law.** In a June 2019 debate on the Prohibition of Late Term Abortions Act, Star called abortion "baby murder," while opposing legislation to limit abortions. Star said,
 
-\[Source, [MM/DD/YYYY](https://old.reddit.com/r/ModelUSGov/)\]
+> I think baby murder is something we have an obligation as the federal government, to get involved with, but I don't believe that this bill is the best means at all to reduce the number of abortions in these United States. All this bill will do is increase the number of wealthy women who leave the country to get abortions, and force working class women who can't afford a baby and the healthcare related to pregnancy to seek out unsafe abortions. And as we all well know if there is a demand in the market a supply will make itself clear.
+
+\[H.R.346 Debate, [6/26/2019](https://www.reddit.com/r/ModelUSGov/comments/c4i6l9/hr346_prohibition_of_late_term_abortions_act/es1xp5y/)\]
 
 +++
 
